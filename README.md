@@ -1,0 +1,2 @@
+# premium-knit-machine-001-knitting-machine-setup-tensi
+Tired of frogging rows because your tension is off by a hair? Stop guessing and start tracking every yarn, carriage, and needle setting in one place.  Your Knitting Machine Setup &amp; Tension Craft Hub is the only Notion template that treats tension as a craft in itself. It replaces sticky notes, spreadsheets, and trial‑error with a structured system
